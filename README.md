@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Sensei-Odin
+- 👀 https://linktr.ee/StuffOdinLikes
+- 📫 Ping me in discord or on twitter, same name
